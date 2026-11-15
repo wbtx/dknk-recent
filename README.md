@@ -11,10 +11,12 @@ Je Perds Pas Mes lecteurs, soyez attentifs -
 
 dknk theuk-b, Pa-.¢./ ⓗ \\\ «» "ⓑ" Aussi -
 
-faites attention aux barres «» obliques \\\ «»«» le comptage [[pour le comptage \\\ . [v douze] ← \\\] . Swap] ←(.()) ouvrir ce ← \\\ [et l'enregistrer] \\\ ←[README °° \\\/// [ⓟⓝⓣ [2L 3L \\\], Crochets] ← ••• "." ← \\\\ [[Jéhovah Meshak] ° Tka5loenh khonh-v eunh1] ← md \\] fichier \\\\\ -
+faites attention aux barres «» obliques \\\ «»«» le comptage [[pour le comptage \\\ . [v douze] ← \\\] . Swap] ←(.()) ouvrir ce ← \\\ [et l'enregistrer] \\\ ←[README °° \\\/// [ⓟⓝⓣ [2L 3L \\\], Crochets] ← ••• "." ← \\\\ [[Jéhovah Meshak] ° Tka5loenh khonh-v eunh1] ← md \\] fichier [README «»«»«» "." ←[⇾ \\\/// ⓟⓝⓣ 4L ← \\\\ [v douze] . Ok9, Ressortir] md \\\] \\ «» ←[-.- Parenthèses \\\] \\\\\ -
 
 et-% \\\ p2 ← v douze - ⇾  \\ «»«» En "." Parenthèses "v douze \\\\ ou-%" - nombre «» de barres obliques -
 
 et \\\ [v treize] °± -
 
-"Lounk-v" Mot Nouveau - 
+"Lounk-v" Mot Nouveau -
+
+s` et \\\ [s élidée] ← \\\ . ls ° ← v douze -
