@@ -20,3 +20,5 @@ et \\\ [v treize] °± -
 "Lounk-v" Mot Nouveau -
 
 s` et \\\ [s élidée] ← \\\ . ls ° ← v douze -
+
+ouvrir avec chrome sous ° android \\\, firefox bo91 tkam-v \\\ gnak ← \\\ [Mon Laotien Le Meilleur \\\ [\\\ p2 ← Parlé Par Dieu, . un] ←] \\\ [flèche bas, khienh-b] ↓ ←[ –\\\\ un, \\ p2 ← ⓟⓝⓣ 4L] ↓ –\\\ .[←] peenh-v -
