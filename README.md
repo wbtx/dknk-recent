@@ -33,4 +33,6 @@ ajout de deux nouveaux sites là-haut \\\\ \\\ p4 Deux °° . Swap`` \\\\ [Élid
 
 concerne "presqu'île" flèche bas -
 
-et v douze, . tiret \\\\ [\\\ -;- ← . Koid et] - 
+et v douze, . tiret \\\\ [\\\ -;- ← . Koid et] - J'Espère passager gt cette demeure intacte` \\\ \\\ pv2 ← interface kao1-v di ⓛ \\\, -gt- ← -
+
+tous les browsers [«» font ça [voir précédemment] ←(un)] ←, ça va \\\ pv2 \\\ ←[Marmonne Dieu Aussi] firefox \\\ [di ⓛ louk moet-bv] ↓–\\\ .[←](\\\ , Murmurer Dieu \\ «») -
