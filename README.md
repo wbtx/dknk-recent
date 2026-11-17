@@ -27,8 +27,10 @@ et \\\ [v treize] °± -
 
 s` et \\\ [s élidée] ← \\\ . ls ° ← v douze -
 
-ouvrir avec chrome sous ° android \\\, firefox bo91 tkam-v \\\ gnak ← \\\ [Mon Laotien Le Meilleur \\\ [\\\ p2 ← Parlé Par Dieu, . un] ←] \\\ [flèche bas, khienh-b] ↓ ←[ –\\\\ un, \\ p2 ← ⓟⓝⓣ 4L] ↓ –\\\ .[←] peenh-v -
+ouvrir avec chrome sous ° android \\\, firefox bo91 tkam-v \\\ gnak ← \\\ [Mon Laotien Le Meilleur \\\ [\\\ p2 ← Parlé Par Dieu, . un] ←] \\\ [flèche bas, khienh-b] ↓ ←[ –\\\\ un, \\ p2 ← ⓟⓝⓣ 4L] ↓ –\\\ .[←] peenh-v - [\\\//// [«»«» \\\ ⓟⓝⓣ 3L ← «» . v douze] ← guère mieux «» chrome] ← - 
 
 ajout de deux nouveaux sites là-haut \\\\ \\\ p4 Deux °° . Swap`` \\\\ [Élidés Double \\\\ veut dire Très Rapide] ←[⇾  \\\ "plus man" Keuab \\\\, Y Presque presqu'île \\\ Manhattan ←[⇾⇾⇾  tkia2 ni2] ↓–\\\, Peai, Traduit]  ± -
 
 concerne "presqu'île" flèche bas -
+
+et v douze, . tiret \\\\ [\\\ -;- ← . Koid et] - 
