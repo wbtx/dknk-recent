@@ -8,6 +8,14 @@ https://1drv.ms/f/c/8583796a33fd4fba/IgCL2W_a1Tg0SapBNmjl0MINAU7NYutK1yxeeVheDu9
 https://dknk.fr/
 
 -------
+https://github.com/wbtx
+https://github.com/wbtx/dknk-recent
+https://github.com/wbtx/dknk
+
+
+[si version simplifiée \\ «»«»«» «» de \\\ ⓟⓝⓣ 4L ←  l'interface, ne vous inquiétez-%, «» faire share «»«» \\\\ [puis ouvrir \\\ [l'interface nouvelle avec un browser] ←] °° ←[⇾⇾⇾  . Deux ←[un]] \\\\, [Hourra ! Dieu Peai \\\] ← - "share" optionnel, browser lod \\\\ ouvrir "fichiers récents \\\ [ou ° dknk °°°] ←", \\ [p2 ← [ngam github] \\] ← - ⇾  \\ En Phrase Éternelle] ← -
+
+-------
 
 readme git \\\ ←[«» "git" flèche \\\, Dieu San2 \\\ . b ← Eai git \\\ hub ←] hub -
 
@@ -36,3 +44,5 @@ concerne "presqu'île" flèche bas -
 et v douze, . tiret \\\\ [\\\ -;- ← . Koid et] - J'Espère passager gt cette demeure intacte` \\\ \\\ pv2 ← interface kao1-v di ⓛ \\\, -gt- ← -
 
 tous les browsers [«» font ça [voir précédemment] ←(un)] ←, ça va \\\ pv2 \\\ ←[Marmonne Dieu Aussi] firefox \\\ [di ⓛ louk moet-bv] ↓–\\\ .[←](\\\ , Murmurer Dieu \\ «») -
+
+n'oubliez d'ouvrir README ↓← md –\\ «»  𝛼  p2 ←  𝛼  et télécharger «»«» \\ [«» pho95 barres theuk-b \\\, . pv \\\ .. Ok9 ←[⇾  \\ github di ⓛ toeb] alphas] ← -
